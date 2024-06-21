@@ -27,9 +27,10 @@
 -⠀I am a fictive of kasper/infected, but this does not mean u can b weird 2 me !!! ty! (also fakeclaimers dni u guys r sad lol....)
 </p>
 
-<p align="center">
-Shut UP 4nD ListEN t0 Teh Dubst3p >_0 !!1!
-</p>
+
 <h5 align="center">
 <img src="https://files.catbox.moe/koagbr.png"/>
 </h5>
+<p align="center">
+Shut UP 4nD ListEN t0 Teh Dubst3p >_0 !!1!
+</p>
