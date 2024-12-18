@@ -18,13 +18,10 @@
 -⠀cuddles are always okay for everyone :3 just dont b a freak ab it 
 </p>
 <p align="center">
--⠀i dont help with party sizes
+- redoing this l8tr bc im not as active + hyperfix change
 </p>
 <p align="center">
--⠀SEND ME SKATERLIGHT ON MY STRAWPAGE!!!!!!!!!!!! ^_^
-</p>
-<p align="center">
--⠀I am a fictive of kasper/infected, but this does not mean u can b weird 2 me !!! ty! (also fakeclaimers dni u guys r sad lol....)
+- dont be weird to me or any of my parts (alters) or "fakeclaim" when u dont know me , or my medical history . its weird
 </p>
 
 
