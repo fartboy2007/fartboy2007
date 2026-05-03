@@ -9,7 +9,7 @@
 ♡⠀⠀𝅄⠀⠀he⠀any⠀ask
 </p>
 <p align="center">
--⠀usually offtab, afk or sleeping
+-⠀usually offtab/afk
 </p>
 <p align="center">
 -⠀i typically wont int first bc social anxiety but always feel free to int !!
@@ -18,11 +18,9 @@
 -⠀cuddles are always okay for everyone :3 just dont b a freak ab it 
 </p>
 <p align="center">
-- redoing this l8tr bc im not as active + hyperfix change
+- redoing this l8tr bc im not very active
 </p>
-<p align="center">
-- dont be weird to me or any of my parts (alters) or "fakeclaim" when u dont know me , or my medical history . its weird
-</p>
+
 
 
 <h5 align="center">
