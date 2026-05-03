@@ -6,7 +6,7 @@
 </h5>
 
 <p align="center">
-♡⠀⠀𝅄⠀⠀he⠀any⠀ask
+♡⠀⠀𝅄⠀⠀he⠀him
 </p>
 <p align="center">
 -⠀usually offtab/afk
@@ -19,6 +19,9 @@
 </p>
 <p align="center">
 - redoing this l8tr bc im not very active
+</p>
+<p align="center">
+if u want any of my socials just pm me :-) im trying to be more social
 </p>
 
 
